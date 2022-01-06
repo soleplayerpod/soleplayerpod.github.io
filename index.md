@@ -1,0 +1,2 @@
+# The Soleplayer Podblog
+Here begins an attempt to systematize my eternal need to create TTRPG characters and otherwise muse about tabletop gaming in general from a solo perspective — soleplaying, if you will. Wheee!
